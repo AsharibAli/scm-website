@@ -1,1 +1,1 @@
-# Sindh Collegiate Mehrabpur (SCM) Official Website
+# Sindh Collegiate Mehrabpur (SCM) Official Website!
